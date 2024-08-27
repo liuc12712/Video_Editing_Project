@@ -57,7 +57,7 @@
 ## 联系
 
   qq邮箱:3381554484@qq.com
-  gmail邮箱:liuc28829001@gmail
+  gmail邮箱:liuc12712@gmail
 
 ## 备注
 
